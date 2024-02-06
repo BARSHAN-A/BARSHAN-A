@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @BARSHAN-Adhikari
-- 👀 I’m interested in ...coadinh
+- 👀 I’m interested in ...COADING
 - 🌱 I’m currently learning Artificial Inteligence.
 - 💞️ I’m looking to collaborate on interested people for startup, AI comapny.
 - 📫 How to reach me email--barshanadhikari181@gmail.com 
